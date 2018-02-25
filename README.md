@@ -1,0 +1,1 @@
+**Documents/My Games/Terraria/World/~**
